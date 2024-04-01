@@ -1,1 +1,1 @@
-# priya-resume
+# priya github.io
